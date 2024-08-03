@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **aanvinanta5@gmail.com**
 
-- ⚡ Fun fact **Imma Fast Learner(wannabe)**
+- ⚡ Fun fact **gaada**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
