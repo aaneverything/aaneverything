@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **aanvinanta5@gmail.com**
 
-- ⚡ Fun fact **gaada**
+- ⚡ Fun fact **gaada apa apa**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
